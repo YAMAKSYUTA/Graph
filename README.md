@@ -16,4 +16,4 @@ https://yamaksyuta.github.io/Graph/.
 
 2) Диаграммы 
 
-![alt text](https://pp.userapi.com/c847019/v847019552/157558/SDyNwRUEb60.jpg "Kakoi-to graph")
+![alt text](https://pp.userapi.com/c847019/v847019421/15d325/157RnsEmR20.jpg "Kakoi-to graph")
