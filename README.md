@@ -16,4 +16,4 @@ https://yamaksyuta.github.io/Graph/.
 
 2) Диаграммы 
 
-![alt text](https://drive.google.com/drive/folders/1ygudb2I0wI4zN3RFz0RTABO5AWKfcTbq "Logo Title Text 1")
+![alt text](https://pp.userapi.com/c847019/v847019552/157558/SDyNwRUEb60.jpg "Kakoi-to graph")
